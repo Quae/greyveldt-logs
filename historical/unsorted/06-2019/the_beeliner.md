@@ -215,3 +215,113 @@ He wrings his hands together, for a bit. One step (Three? He Does have six legs)
 "I just wanted to know how worried about you I'd need to be if _I_ get into a fight." he added only then, after he was finished attending to himself, loosing another enthusiastic click, "Well? I'm ready if you are!"
 
 -------
+
+The person who'd shoved past was gone before he knew what happened, yet the sound and motion jostled Harris out of his crestfallen stupor. With renewed intention, the tremulous engineer scooped up the papers and made way against the moshing tide toward the door. The walkable space was narrow, a channel of resentful stares parted in waves until finally the next resentful stare belonged to Rumphus, the station manager, who entered the cab.
+
+The mustachiod man stuttered like a lit fuse making its way to the payload. "Humes! Why in gods' names aren't you manning the blasted helm?! Do you know the time?!"
+
+"Yes, uh. Yes, I do, sir. Very much so. But you see, ehm, there's a....." Just then he noticed one of his papers was missing. He looked at the papers. Then back to Rumphus. "...slight problem?"
+
+Rumphus' mustache twitched. "I should say so! Why are we talking, man? Aren't you commissioned to man a historic vessel in, oh," he glanced at his brass sundial watch which showed no time because they were indoors and, anyway, was mostly a posh fashion statement, then concluded, "2 minutes?"
+
+"There was miscount - with the inventory -" Harris blurted, finding words suddenly to be a struggle.
+
+His words were cut short as Rumphus coughed and swatted the air between them. "You reek of seltzer and cherries, man! Enough rambling! Let's get you to your post before anyone smells your breath and the whole thing is off!" With this, he shoved Harris' skinny body aside. "And for the love of the Guiding Beam, try to sober up!"
+
+ He bustled away in the same direction Rusalka had gone.
+
+-------
+
+The spider stays still for a minute that feels like a year to him... And perhaps his accompanyment, depending on how hyper they are.
+"I... Dont think I want to go? Im sorry sir? All I- All I knew is that I had to deliver this, because Somethin was up with the train and uh, my superior wasn't around, um."
+Their tiny hands grasping at the hems of his cloak, head bowed, they continued "Its... Not like I Couldn't fight. I don't... I don't want to, sir. The Holy Mother wouldnt approve-- violence is only to be used as a defense, and hunting for food"
+
+The arachnid looks up to Razor, eyes hidden under his cloak yet shining enough to notice a few of them, sparkling like coins in a wishing well. "Why do I have to -- why would I, lend you my hands? Whats, uh, so bad about this train-thing?"
+
+-------
+
+"Hey-hey-hey-hey-hey, easy." batcop coos, hands raised as if in surrender, "I'm not asking you to do anything you wouldn't want to."
+
+He turns his head aside, swipes his thumb up the middle of his nose and clicks his tongue once in a softer, thoughtful way, remarking in a quieter - though not so quiet as to escape the ears of his associate - voice, "They really did send me a kid -- I thought he was just _short_." When he faces the spider again, his expression suggests he still hasn't quite worked out how to deal with this... situation he has in front of him, but he's smiling confidently all the same. Then he squats down on his haunches like a true Slav so that he's closer to level with the hooded arachnid's lowest set of eyes.
+
+"I don't know. Maybe nothing's bad about it at all. I need to be _absolutely sure_ about that, though, and that means going places people might not want me going, and asking questions people might not want me asking, and I'm not going to make you or anyone else to put your neck on the line with me. I can handle myself." Razor says, and never once does he sound less than completely convinced of his own awe-inspiring greatness, "The reason I'd like you to come along is to see for yourself whatever it is that I dig up. If everything's fine, great! If there's trouble, I want you to be able to get the warning out as quick as you're able. That's all."
+
+-------
+
+"Mister Humes," the quiet voice behind the befuddled engineer was somehow both sympathetic and severe; acknowledging that yes, this whole affair was a really a bother and she was witness to his suffering, but so too did she have her duties- they all had their part to play- so how could she help insofar as her own duties required without enabling him to shirk his own. Really, the woman's voice was quite expressive in so few words, should one really care to listen.
+
+Her expression was blank, impervious, humanoid features purposefully taking a back seat to the myriad of mixed ancestry spots framing her face in dark browns and pale blacks. She waited on his response-- waiting for others to fill in the gaps usually served the reticent guard well.
+
+-------
+
+"Oh, good evening," replied Harris, pausing only momentarily to glance over his shoulder at her. "Am I in the way here? I'm so sorry - I was just heading that way." His started ahead down the narrow, crowded aisle, heart pounding in his stomach, toes tingling at the sound of her stern, chilling voice.
+
+Quickly moving to put some distance between the officer and his incriminating breath, he bustled along but called over his shoulder, "I hope it's been a good day for you out there - you guys are working hard! Really the city's finest. An honor to have you aboard, ma'am!"
+The train whistle hooted just then, impatient as a tapping foot. Who on earth was blowing the whistle? That was _his_ job!
+
+He scrambled toward the engineering room as best he could, walking with unusual haste. "Sorry -" he called as he fled. He would have concluded, but instead felt his diaphragm spasm from all the anxiety and only narrowly avoided finishing his statement with a loud hiccup.
+
+-------
+
+Hmm. Well, the spider thinks to himself, theres is reason in his words.
+
+After all from all hes been able to gather, what possible reason could these people have to create a direct line to the Drossera Thicket? Surely its not a cultural exchange, because the Sciamii living there don't... Really have one, that isn't survival. They wouldn't destroy the thing, either-- after all thatd take a lot of effort for perhaps no result except the death of thousands and the loss of a biological miracle
+
+Now, exploiting it for all its worth, sucking it bones dry and throwing its inhabitants out, as such creating chaos amongst them an others?
+
+Yeah. Yeah that feels likely.
+
+The spider takes a few steps and stops short of Razor, and tends his hand to him. "If I am to accompany you, I ought introduce, uh, myself. My name is Lekkra"
+
+... And as soon as the man takes his hand, he utters "And I am no child-- I have sired and fostered several spiderlings of my own". Which he says way more confident than... Anything else, thus far
+
+-------
+
+"Razor." the officer introduces himself in turn, taking the offered hand in his own with only a moment's hesitation and twice easing back from the initial firm squeeze he applies to it. Bugs are so easy to ... break, when they're not people-sized, after all, can't exactly fault one for expecting that frailty to carry over to a lifted being.
+
+"No kidding?" he asks with an impressed-toned click when his new partner offers up the deets of their personal life, "Well damn, now I _have_ to make sure nothing bad happens to you. Remind me next time to specify that they _don't_ send me a family man, Pops."
+
+The words have barely left his mouth when the whistle sounds, and the bat practically yanks his hand away in turning to peer around their makeshift cover in the direction of the train. A look over his shoulder to Lekkra follows, then a motion bidding the arachnoid to follow. He trots the first few paces around the pillar but soon breaks to a sprint at the sight of the labourers getting ready to close up the last of the freight carriages.
+
+"Cutting this a bit closer than I'd planned!" he uttered and then, waving a hand as high over his head as he could stretch it, called ahead, **"Hey! Hold that door! Official Sentinel business!"**
+
+-------
+Train-shaped cocktail in hand, Rusalka pivoted as the cab door eclipsed her view of a furry blue fellow in uniform & diminutive cloaked figure scuttling toward the action. Just as well. They were both underdressed.
+
+'The Action' toward which they'd been haplessly running presently consisted of 3 human and anthropomorphic beastfolk individuals identifying as women, dressed in deflated, knock-off pre-Act 0.5 neoregency fashion with roccoco accents, all cooing and twittering over Rusalka's hot new mothfluff collar.  Vivian, a tall (but not tall enough), luscious (but not luscious enough) fellow garbed in a wool-padded gossamer doublet and oversized purple coat which opened at the front revealing holographic glitter smeared all down his chest, chuckled as a fawning smaller, paler lad kissed some of the silver glitter off of his beard and the three women looked at Rusalka, who smiled, and they, too, smiled. Something in that smile made them uneasy. Had they done something to upset her?
+
+Another aspect of The Action consisted of the event's house band, who - in lieu of Rusalka's emergency replacement act showing up prior to the Beeliner's slow building of momentum - struggled over basic knowledge of electroclash / nu disco instrumentation given that most of their tools were brass & acoustic. 
+
+Sipping demurely from her smoldering beverage, Rusalka locked kohl-rimmed eyes with the only other person who seemed to notice this anomaly: Wyntres Thie. 
+
+On the opposite side of the crowd, the shirtless, bejeweled, glitter-covered redhead perched against a handrail, bobbing his head rhythmically and picking through a miniature caboose stuffed with candybread. This long, tall drink of strawberry milk was as sophisticated as he was hard on the eyes. Noting the newfound spotlight, he froze mid-chomp. Now the slight widening of his pretty blue eyes suddenly seemed to register a question.
+
+_Where is my band?_ her smile demanded.
+
+He glanced sheepishly at the door, then back at her, blinking, setting aside the cup of treats, but shoving a few into his tremendously oversized colorblock pockets.
+
+Since you asked, yes, he was selected because he matched her decor, thank you for noticing. And yes, he could carry both she & her baggage when her feet ached from new & elegant shoes. Certainly, alright, was he an accomplished tattooist and, why not?, a metalsmith of reasonable note. And yet. And yet, this now all too evident penchant for polkas (among a sea of equal but noiseless abominations), rendered it clear that the boy lacked scope. As each of the day's arduous moments drifted past, the closer he drifted toward transfer to the Wastes Ops.
+
+
+-------
+
+The BeeLiner keeps gettin' faster, there really isn't time to completely catch up on foot and not by a lack of will or energies-- its the fact that the speed is just unmatchable by them.
+
+That's when, after takin' a few slower strides to prepare, from behind the furred man the spider leaps-- Rrrright on top of his chest, face-front. All legs like a vicegrip on both sides, his hands take a grip on the collar of his shirt as he twists back, lookin' at his bullseye.
+
+"Hold on tight!" can be heard in a grunt of a shout, almost drowned in the sounds of the train's engine as Lekkra shoots a finely-aimed silk rope at the train, with just enough speed to latch right where the door touches the wall atop-- enough space to cross over the railing, if they do it right!
+
+As he pulls back the rope and tries to get them across ("Sweet Holy Mother this Hurts", "I'm going to strain -something-" and "My god my god I'm exercising muscles I really didn't think I Had doing this with someone Heavy is fucking Strange" being three of the several thoughts crossing his mind currently) he says, though perhaps not loud enough to be heard-- "I guess choosing to study rather than go hunting _did_ pay off in the end, huh!"
+
+-------
+
+
+-------
+
+
+-------
+
+
+-------
+
+
