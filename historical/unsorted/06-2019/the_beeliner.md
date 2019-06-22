@@ -315,13 +315,250 @@ As he pulls back the rope and tries to get them across ("Sweet Holy Mother this 
 
 -------
 
+As the train rocked with gathering steam, Rusalka's pride sank & rage swelled. The crowd of partygoers cheered. Train-shaped poppers spurted shining tendrils of synthethetic bioluminsecent plantmatter skyward, heels were clicked in the customary acknowledgement of collective triumph. Libations flowed with renewed vigor & dancing grew more aggressive. Equally bad, but faster now. In honor of this, the house polka band continued to play the same ditty of didactic but "plucky" nationalistic fervor: '_My Beacon Thinks He’s a Train_'. WHERE WAS HER GODS. DAMNED. BAND? 
+
+Clutching the rim of her beverage flute more tightly with each drum hit, she studied the cab door with a tightening jaw, & the smoldering liquid in her cup drifted toward a bergamot-coated rim.
+ 
+Wyntres reeled from his perch & closed the distance between them, tipping the cup upright just in time to spare the powdercoated dyes of her spidersilk ensemble from liquid death.
+
+"You don't like the decorations?" he whispered, furtively glancing about. Noting her wordless glance at his fingers (still frozen over hers), he shoved into his hands into his pockets.
+
+_Oh yes. The decorations._
+
+"Trains, huh." Without acknowledging his gaze, she tossed back a slow, deliberate drink.
+There were trains everywhere. Paper trains on the walls of the train. Tiny train-shaped confettis. 
+The house band knew just one disco song. The one they'd played for Rusalka's commencement speech, & it was train themed. That song was only thing that Rusalka, personally, saw fit to request for this dry & tawdry event planning ordeal of banal train-hype. Trains! She was supposed to get hyped about trains?! She'd given it to the only person she knew could get hyped about trains - when he'd shyly offered - and now...
+
+And now this.
+This.
+
+"BAM!" announced the cab door, directing everyone to turn.
+
+-------
+
+The red-headed Sentinel ducked back from the side of the railcar when the sting of the rushing air became uncomfortable. The back of the engine car shielded her. It was alarming between cars, but exhilarating all the same. 
+
+Sheathing a chilly earlobe in her gloved hand, she watched the familiar Beacon Sprawl as the Beeliner gained speed. It was a first in a life time view. She switched ears and distractedly fished into a pocket, bewitched by the familiar from such an unfamiliar viewpoint.
+
+In her palm was a small, decorated spiralling shell, oplascent, attached to a small red ribbon. She lifted it to her face and cupped it protectively from the whipping wind, then spoke softly to it:
+
+"The Beeliner...I am overwhelmed by its future of peace and cultural understanding. I wish...you could have seen this with me. It's fast, and smells like heat and oil."
+
+She held the shell up, careful to keep it in hand, and let the ambient noise surround it. Then, with a sigh, she pocketed the trinket and stepped inside the car behind the engine.
+
+-------
+
+Razor shouts a remark or two about the lack of diversity in the highborn gene pool at the back of the departing train, pushing his legs to carry him as fast as they can be forced to do so, when it suddenly feels like a large sack of potatoes has struck him in the back. He barely saves himself from falling face first on the tracks in the moments that follow, struggling with the added weight as it moves itself around to the front of his body and, almost faster than he can process what's going on, he finds himself in an eight-legged embrace.
+
+"**Drinks first!**" he blurts out in a way that seems strangely reflexive, right at the same moment the arachnoid is warning him to hold on, "Wait, what?"
+
+Then the bat's eyes grow incredibly wide, looking on in awe as his new favourite partner lassos the train and launches them at it. With its butt. The seconds that follow become something of a blur for the pair, mostly owing to inertia and the spin the Sentinel puts them in towards the end of their arc, each moment punctuated by manic laughter, whooping, and finally the sensation of hard, unforgiving metal colliding with flesh and bone. Razor's, specifically. He had managed to set up that spin so that he'd be between the bug and the train when they hit it. Anyway that's what he's going to tell everyone his intent was, if they ask later.
+As he crumples down to the floor of the rear balcony he pushes out a few more weary, winded laughs, rolling his head back and to the side, his eyes twinkling with something a little more than the usual crystal-hued glow. Then, with a sharp inhale to help steady his bearings, he levels the biggest grin he can stretch his mouth into at Lekkra.
+
+"That was the best thing I have ever done." he declares, and with disconcerting speed reins his enthusiasm back to its usual level, "See, Pops? I couldn't pull this off without you. Now we just need to get up to the freight cars for a peek to make sure nothing's amiss, but to do that we're going to have to get through..."
+
+Suddenly, the man-bat's face is grim, his eyes seem deeper-sunken and surrounded by impenetrable shadow, despite the persistent light they give off, his tone dropping an octave as he finishes, "**The Beeliner Gala.**"
+
+-------
+
+Rusalka sets down her train cup.
+The polka grinds to a laboured halt.
+Everything is still for a moment before the wind now - rippling the spiderfuzz and cloak of the sciame kid - shimmying the bluish fur of the uniformed bat bloke - whipping through the cabin, via the open railcar door, scattering napkins, plates and pasties - snatches one of the rare firebird plumes from Rusalka's extraordinary hair adornment.
+
+She opens her mouth in protest against the wind, but any sad quiet sound she makes is swallowed by the howl of the open cab door behind the two newcomers.
+
+Before anyone else can react, she announces, "Oh good, the band's here." And jerks her head at Wyntres to close the door.
+
+-------
+
+It may have been the sudden ammount of people in front of him (Never quite the public speaker); perhaps the sudden realization of, hey, this IS dangerous? He only had to... give a parcel, and that's it.  Nothing else! No more help required, just another one of those dumb tasks they make him do so often! All right!! 
+
+Maybe it's the enclosed space? The risk of firearms and stray bullets, because even if he Does evade any sort of danger who's to say he won't become secondary damage? Perhaps it's the sudden smell of danger in the air?
+
+He takes a few steps back, afraid-- "I'll uh I'll uh I'll go through the top! I can rea--reach you further on ahe--!" And the door closes, right in front of his face.
+Welp.
+
+Guess he IS going through the top, after all
+
+-------
+
+Razor is left sitting alone on the floor staring at the pointlessly elaborate brass detailing on the inside of the door, expression blank, eyes blinking rapidly.
+
+"I ... guess I should have just said it would be horribly boring." he says to no one particular and proceeds to pick himself up, brush off his outer thighs and seat of pants, wipe a stray, leftover strand of webbing off his shoulder ... or, rather, wipe his hand over a strand of webbing on his shoulder and spend another three or so minutes just standing there struggling to separate it from either his jacket or his palm. The final result is a ripping sound, a wince, and him gingerly rubbing the defurred palm of his hand as he at last turns to make his way up the carriage. For a mercy, by then the initial surprise that had captivated the crowd on his entry has subsided and he only has to contend with the odd blueblood looking at him as if he were some vomit-reeking drunkard and, they being aristocrats and him being Felemelte, he was fully accustomed to that.
+
+He helps himself to one of those tacky train-shaped beverages off the first server he can weave his way over to, gives it a once-over with a face that pretty much screams "rich folk amirite," tips it back for a heaping swig and lets his jaw lower along with the glass so the drink spills right back in, and sneaks the affront to taste back onto the tray of a different server he slips past further up the car, shuddering and contorting his features through a myriad of disgusted expressions. All without ever breaking his stride.
+
+-------
+
+"May I help you?" enquires a voice, coolly, from behind - just as he's reaching the exit.
+The voice - haughty, commanding and wryly coquettish, all at once - belongs to Rusalka. She faces the furry blue man, eyebrow arched. One elegant lace gloved hand rests on her hip, an empty train goblet adorns the other. "You seem lost."
+
+Scurrying silently up behind her, Wyntres presents his mistress with the recovered firebird plume. She exchanges it for her empty train goblet without so much as regarding the man. Wyntres recedes back into the sweaty morass of painted gyrating bodies behind her and dissolving into glitter and spasmodic lights.
+
+-------
+
+"I get that a lot." Little Bat Blue says without a trace of facetiousness, followed by a thoughtful-toned cluck of his tongue, brought to a halt but moving his eyes in such a way as would suggest he's constantly charting and recharting his course to the door, sparing the woman directly in front of him only a quick once over. Suddenly, he's snapping his fingers repeatedly, his face brightened with excitement.
+
+"Oh _you're_...!  Wastes, it's left me. Lady something? Ladyyy ... _The Bee Lady_."
+
+He only finally meets her gaze her once he's dumped the moniker in her lap, wearing a smile that would brand him as the Village Idiot, proceeding directly into a ramble without pause, gesticulating energetically the whole while,  "I mean obviously that's not your name but that's what I keep hearing people call you and _**wowza** you are killing it in that dress_ is that genuine Sciame spider silk or did they weave it from clippings of that gorgeous hair of yours because if I may say I have never seen hair that looked so smooth and healthy and the way it frames your face oh madam you are a work of _art_--"
+
+...This will continue, if permitted.
+
+-------
+
+As he speaks, Rusalka casually re-nests the firebird plume in her elaborate hairdo. 
+
+"Why don't you play us a song?" Rusalka volunteered, jutting her delicate porcelain chin toward the diamond-encrusted bandstage, where the polka continued undeterred. She lowered her lashes at him...it was clearly a challenge, a dare.
+
+-------
+
+This! Gets the bat to pause mid-blather, look at the stage, then back to Rusalka, his face frozen in the look of insipid reverie he was wearing when she interrupted him. Then, a bubbly, vapid laugh as he gestures dismissively in her direction, "Well no one mentioned _The Bee Lady_ had such a clever sense of humour, imagine, for moment there I thought you'd actually mistaken me for part of the entertainment. Instead of _The Bee Lady_ they should call you The Jerker Bee Lady, get it? Like _worker bee_ but _jerk_ because you just _jerked_ my chain!"
+
+-------
+
+"You're a funny boy," Rusalka replied, plucking a piece of glitter off the lapel of his uniform. "I like that...in a bat. Bee Lady's a new one for me. Did you come up with that yourself? Have you ever considered a career in standup?" She searched his face tenderly. "No? Perhaps you needed a little prompting. You see, I need less...polka...and you need less...getting fired, am I right?" Creasing her delicate brow, as though puzzled, she added - "Unless you think your supervisor would be understanding about why you crashed a 16K-cluster historic gala fete with a cloaked spider...that is."
+
+Just then, Wyntres returned with a freshly filled train caboose goblet. It was red and smoldering with dried ice or...gods knew what. She took the glass and waved him off, with a gesture that seemed part wave, part gang sign. 
+
+Then she took a long red sip out of the crimson goblet, fixing her gaze pointedly on the bat lad through a veil of alcoholic smoke. The warm tones of liqueur reflected in her wry gray eyes. Oh, I see - the drink was actually on fire.
+
+She seemed nonplused by it as she sipped. And more miraculously still - her lipstick remained immaculate. What devilry was this?!
+
+-------
+
+"Gh-h-h."
+
+The airhead act finally drops as the bat scrunches and contorts his face into a look somewhere between repulsed and intrigued, while his ears twitch and flick spastically. On the one hand, she totally just took a pass back at him. On the other, she followed it right up with a threat. Also, his Danger Sense has been going off since the moment he met her gaze. She can probably hear the gears in his head grinding as he forcibly smooths out his features and leers at her through the vapor coming off her beverage.
+
+"...I can do magic."
+
+-------
+
+Eerily coincident with Razor's proclamation, the manservant Wyntres comes strutting back, this time ushering some conical hornlike item along with him. Just this once, Rusalka momentarily acknowledges his presence with a curt smile, and takes the...uh oh. Oh no.
+
+Ever efficient with gestures, Rusalka's body follows her head in a pivot toward Wyntres. Toward the sweaty, glittering throngs of neon bodies shimmying and coiling.
+
+She lifts the horn to her mouth and --
+
+**DOOT DOO DOOOOO WAHHHHHHHHHHHH!**
+
+The polka falls silent. Guests, including those who'd been playfully tossing black train-shaped confetti at one another, fall still.
+
+They are looking at Rusalka.
+
+They are looking at the man behind her.
+
+**"It appears, ladies and gentlemen, that one of our honored guards dropped into the party...a little tardy."**
+
+**"OoOoOoOoOohhhh!"** cries the crowd.
+
+Reaching behind her, Rusalka snakes an arm around Razor's lower back and gives him a hefty shove forward.
+
+**"I know! That's very naughty, isn't it?!"**
+
+The crowd cheers in unanimous affirmation.
+
+**"What do you think we should do with naughty lads who are late? Shall we have him perform a trick?"**
+
+**"WAHHHH!!"** agrees the sweaty, shiny morass, clearly ecstastic over the suggestion.
+
+Oh dear. They must really hate that godsawful music, too... Rusalka thinks grimly -- but stops herself just in time to keep her brow from creasing. She beams at them all. Well let's make them forget about it, shall we?
+
+With that, she gives Razor another -- surprisingly muscular?! -- shove forward.
+
+Even if this is terrible...well, it's bound to be all the more amusing...! ♡
+
+-------
+
+He'd assumed she'd summoned the horn expecting him to play it per her original 'challenge,' so the initial reaction was confusion when she got ready to blow on it herself, and then... Loud. Pain. The bat flinches and raises a finger towards his ear on a reflex to plug the hole and muffle the noise, but never quite makes it there. In the following moments he appears in a daze, blinking slowly, making very slight tilts and turns of his head. The boisterous trumpeting had overloaded his echolocation. For Razor, it was like a star had burst into existence scarcely more than arm's length away from his face, consuming the room and all that was in it in a blinding light which was now gradually fading away, forms and features bleeding back in from the void like myriad shifting fissures.
+
+The first shove caught him still reeling, and he stumbled the couple steps forward before catching himself. He put on a sheepish smile and raised his hand in greeting to the assembled crowd, still cognizant of his situation enough to fill in the gaps. By the second thrust he has his bearings enough that he manages to save himself from completely bowling over the mustached gentleman in suspenders, barber stripes, and a monocle whom happens to be in his way. It's a crowded train. He spends a few moments mumbling profuse apologies while fussing with the fellow's attire, tugging its corners and patting down its surfaces all while repeatedly firing off quizzical looks at the multiple smaller lenses folded off to the side of the eyepiece. Were they for multiple levels of magnification? Or just decorative? What functional purpose could they ever -- focus.
+
+------
+
+
 
 -------
 
 
--------
-
 
 -------
 
 
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
+
+
+
+-------
