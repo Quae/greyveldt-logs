@@ -477,69 +477,189 @@ The first shove caught him still reeling, and he stumbled the couple steps forwa
 
 ------
 
+He proceeds to bump and stumble his way through the crowd, barely passing a soul without colliding with them, grabbing onto each one to catch them - and himself - as he goes, straying wide of his target prompting the waiting and not-to-be-denied audience to right his course,  typically with shoves in the correct direction. Their is a quirk to his smile all the while that might lend, to the astute observe, the impression that encouraging these interactions are precisely his aim. Stalling? At long last he reaches the stage, back in full stride practically skipping the last few steps and scaling the platform with an effortless hop, spinning to face his audience, throwing his arms wide, then sweeping them behind his back and to his chest as he takes a deep bow.
+
+"Esteemed guests! And our most esteemed hostess, _The Bee Lady!_" he proclaims, gesturing over the sea of heads towards Rusalka. The assortment of confused grunts and bewildered looks that accompany those many heads turning to search the crowd and, eventually, settle on the woman in red, puts the lie to his earlier claim that he heard the nom de plume from others - well, he never said it was the party guests, specifically. Razor sounds a delighted click as they gradually make the connection and turn back to him, the seed now planted.
+
+"Let me just say, first of all, that it is a _privilege_ to be here with you all today on this historic..." the leather-clad bat begins, but trails off and starts gesturing for patience as the crowd begins to rumble impatiently, "Yes, ha ha, right... had enough speeches for one day, haven't we all. Just getting myself psyched up for this~"
+
+"Actually... I could _really_ use a drink before I put on this show, bear with me! So sorry! I didn't exactly have a lot of time to get organized, y'know? You sir!" he points, quite dramatically, to a fellow nearest the stage, "Nearly done with that? Would you permit me have the rest and help yourself to a fresh drink from one of those fine servers? Oh, Spire thrice bless you, sir - that's what we Felemelte say when we're _especially grateful_, did you all know that?"
+
+He keeps his voice raised to address the entirety of the cabin's occupants while he stoops down and takes the three quarters empty glass from the man, after first clasping both his hands around the other's free one and giving it a vigorous shaking. He gets ready to down the remaining beverage, then pauses and holds it up to eye level with a frown, "Actually that will really barely wet my whistle - ha, train joke, get it? Whistle? Like... on a train... ... ...hmm. But yes! You, ma'am! If you'd be so kind--oh, you would, Spire thrice bless, yes, _thank you_ so much."
+
+And as before he squats to accept the drink, though he first of course must take the fine lass' hand in his and lift it to his face for a brief kiss that earns him little more than an eyeroll from her. He stands again, pours the second drink into the first, gets all set to toss the train-shaped decanter back and...
+
+"_Actually--_"
+
+A surge of groans and more than a few calls to "get on with it."
+
+"Yes. Yes. It's just... it occurs to me this isn't really the sort of party for _sharing a kiss_ with two complete strangers! ...However _indirect_, is one of the servers... yeah! You there, this way. Let him through now~"
+
+And soon on of those fellows toting a tray laden with untouched beverages waiting for thirsty guests is up at the stage and the bat is swapping his empty glass and mixture for one of the drinks.
+
+-------
+
+At some point in the bat's all-too-public fluster, the far door opened and the severe red-headed Sentinel mingled at the edge of the packed entertainment car.
+
+'Mingled' was putting it kindly. She skirted the crowd as best she could as if they were contagious, gloved hands up to buffer herself from the thrall as she sidewinded and sidestepped and zigzagged through with mumbled, breathless apologies as she went. 
+
+"_Actually-_", she hears, and the color in her face drained. Razor. In the Luyus' entertainment car. _In the spotlight_, with a literal stage beam highlighting the white of his fur to surreal luminosity. She stopped. 
+
+She became a lanky, immovable bean pole of sober horrification, staring through the shifting leaves of limbs, accessories and impractical hairstyles, focused intently with the promise of dire consequence on the bat Sentinel.
+
+-------
+
+It's not rocket science - steering a train. Ya got a track. Ya got wheels. Ya got one way to go. Harris'd spent his life preparing. If there was one thing he knew in his sleep - eyes closed, hands tied behind his back - it was trains.
+
+When he'd skittered up to the cool interior of the engineering room, he encountered some awful little tikes pounding their chubby baby fists on the horn like it was a clown car. He ran the little buggars off, feebly shaking his fist as they giggled & scampered down the hall out the engineering cab door. Harris looked after them, hastily settling into the driver's seat, then busied himself superficially. 
+
+He expected the sentry would burst in from that same door & drag him away. He had to look functional, diligent...innocent. Yet after a few heart-in-throat moments, it seemed he was truly safe.
+
+Wow. So here they were: he & the train of his boyhood dreams. In spite of all the obstacles. He'd made it. How was it that he'd ever so foolishly jeopardized this opportunity? & yet - & yet - who knew he'd be here one day? He heaved a stetterous sigh.
+
+And hiccuped.
+
+He discovered that they'd gotten the steering wheel all sticky with their candyclaws & smeared some kind of clay (?) goop on the chair. Tsking under his breath, Harris looked about for some sort of moisture to clean it, & in finding none, resolved to spitshine the marring with his old suitjacket. The Beeliner deserved better than this. He swabbed the wheel lovingly, like a maestro preparing to conduct a symphony. Doing so, his eyes drifted from the wheel to the desert-straddled track ahead & then to the painted shell on his dashboard. Harris fiddled a bit with the shell's opening until the mouth came just sufficiently ajar to keen out a little song. It was the song his old girl back home used to sing to him...before...
+
+Just before.
+
+```♪♫♬ & baby, I do-ooh until ahhhheee duoon't! ♪♫♬``` He silently mouthed the final lyrics of the chorus.
+
+The Beeliner lurched into smooth & luscious motion.
+
+-------
+
+And so Razor takes a swig of his fresh new beverage! And shudders, contorts his face in disgust, puts the glass back, takes another, and repeats. And repeats. And repeats. And holds up his free hand gesturing for the crowd to wait just little more as he repeats. And repeats. And repeats. Until he's effectively contaminated the entire tray. Then, hanging onto the last decanter from which he sampled and letting out the remaining shivers, composes himself, takes a cleansing breath, and smiles oh so wide to the assembled masses.
+
+"Now, at last, ladies and gentlemen - and The Bee Lady - today on this very stage, for the very first time, you shall witness... magic!" he declares, continuing over the protests of the gathered who are very much familiar with the arcane and are themselves practitioners, "And yes, I know what you're all thinking: _everyone knows magic, and absolutely nothing is special about a Felemelte that does magic at all_, and you would be correct - if I were talking about lighting a cigar or dousing the front row here in a fine mist."
+
+For emphasis, he even lights up a small flame on his fingertip and makes a few flicking gestures to the aforementioned nobles nearest him as he grandstands, the droplets he conjured so small even those getting pelted with them don't see them so much as feel them upon their skin.
+
+"No, what you are about to see is a magic so rare that it has yet to be documented! A magic so secret and with such potential to change life as we know it that I ... really shouldn't be doing this, actually, maybe I'll just..." the bat's voice beings to drop and he starts looking for a way down, earning a mixed reaction of encouraging cheers and jeers from those who see through his blatant attempt to weasel out of having to perform, until he motions once again for calm with a look of resignation.
+
+"Alright, alright! After all, who am I to deny you good people your show! Just... keep this between us, alright?" he asks, with pleading, overly hopeful smile, to some mild chuckling, "Now all I need to proceed is something simple, like... a _watch_. So could I have a volunteer...? Great, thank you sir! No, no need to come up, if you could just pass me... haaah, I see that look. Nothing to fear, of course I wouldn't let it come to harm!"
+
+Once the offered timepiece is in his possession, he stands tall to hold it up where all can see, the bat also craning his neck to look it over. It is, beneath all the ornamentation and frivolous details, less more than a sundial on a leather band.
+
+"...These ones certainly are popular lately." Razor remarks with a singular bat of his eyelids ... and proceeds to drop it into his drink, following right up by shoving his index finger down in after it and -- fwoosh! The beverages goes up in an incendiary flash, leaving the inside of the glass bone dry, and the watch a mangled, burnt, and slightly molten mess. Collective gasp. Murmurs. The watch's owner is put in such a state of shock he can't even muster a series of outraged huffs or a "now you see here!"
+
+"I lied about the not damaging it thing, by the way."
+
+-------
+
+Calhoun's jaw stiffened as he contemplated the molten mystical loss of his prize timekeeping possession. The fact that his gaggle of sycophants and homonuclei were now cavorting in raccous guffaws and ribbing him over it was certainly not improving matters. Frankly, Rusalka couldn't remember a time when she'd seen him so at a loss for words. Of all the debauched revelers the awful little bat could have pranked here today, he'd impressively sniffed out the stuffed shirt with the least sense of humor.
+
+It was no small feat to contain her mirth over the matter...so she may or may not have been smiling more broadly than she usually allowed herself when the now-bereft millionnaire heir eyed her from across the room.
+
+She began to applaud.
+
+And others followed suit.
+
+-------
+
+And that was Chassy's cue. 
+
+Tall and spindly though she was, she rolled through the crowd with the determination of a poor-bred bowling ball surrounded by overly rich and pompous pins. Polite by necessity, but unstoppable. She bowled her way to the stage, head ducked in meek effort to maintain anonymity (redheads are common in Beacon, y'know). Her back to the crowd, the smartly-dressed Sentinel stepped up onto the stage and duly twisted the miscreant's arm behind him in a quintessential arrest; brimming with the profesionally rough demeanor of overworked law enforcement.
+
+One hand gripping his wrist, the other gripping his shoulder, she growled a few coarse words and steered him towards the closest car door.
+
+"Sentinel business, make way," she repeated at forced volume, her voice straining to be heard through the congratulatory back-patting showering her charge.
+
+At long last they reached the car door; Chassy couldn't open it fast enough.
+
+-------
+
+"Oh, uh..."
+
+Razor knits his brows at the onset of applause, rubbing the back of his neck with his free hand. He scans the audience, the china shop bull that's barreling toward him not even registering, while repeated glances are darted to the owner of the _lonely heart_ watch he just immolated, making careful note of how the gentleman's ire was growing in proportion to the crowd's mirth.
+
+"That wasn't the whole act, I still have-" he begins to say, cutting himself off with a noise that mixes surprise and alarm into a frankly adorable squeak when his arm is wrenched behind his back and his shoulder seized.
+
+"Hey Spots. I was wondering where you had gotten to." the out of uniform Sentinel remarks without even a brief look towards her - he's been locked up with Chassy enough times to recognize her by the particulars of how she grips - and as she hastens him away he only resists once, for the spectacle of it, twisting to shout back over her shoulder, "_This is censorship_! I'm an _arteest_, I tell you! An _arteest_!"
+
+-------
+
+"Hah! Good show, good **_show_**!"
+
+The voice booms from the back of the car as a man barges his way toward the bat, carefully clapping around what is surely not his first drink of the evening. Amongst those with their finely waxed moustaches, striped suits, and superfluous suspenders, the boisterous man looks downright scruffy. His ashy hair and roughly trimmed beard contrast against the leathery tan of his skin, the sort that brings to mind long hours spent beneath a hot sun. His smile sags on his right side where a thread-thin streak of scar tissue runs straight up from the pit of his cheek to his scalp, skipping across his right eye along the way.
+
+His attire as well sets him apart; dressed not in the evening finery of his fellow guests the man has adorned himself in... well, not the regalia of a man setting out for the wastes, but certainly that of a man intending to give that impression to those fool enough to not know better. Finely polished jackboots shining in the traincar lights giving way to loose trousers with deep pockets, a too-tight button down shirt carefully tucked beneath an obsidian leather belt but nonetheless left closed two buttons too soon, and overtop a jacket seemingly made of rugged fabric and pockets in equal measure. But for the finery of the fabric and adornments and the sharp militant cut of the ensemble one might be allowed to think the man a mere rapscallion, but this man was something altogether more treacherous - a rapscallion of means.
+
+And now a rapscallion of means conquering the standing ovation playing out the seemingly befuddled bat. 
+
+"Bravo, _bra-vo_! A man who knows how to make an entrance and leave his audience clamouring for more! Good show, my fine furred fellow!"
+
+-------
+
+**"BOOOOO!"** yelled the crowd at the buzzkill sentry as she pulled the bat off the stage. Several revellers, acting far below their social station, chucked train cups toward the officials. Those train cups were made of glass! Were they actually throwing glass at representatives of the LAW?! Were they out of their minds?? Luckily, the projectile cutlery had smashed harmlessly (?) against other random objects...so far. These hooligans among the crowd had terrible aim. 
+
+That is until one man, Whimsord Froward, a blue-painted Beacon elixer connoisseur (maybe that was the mistake?) was clipped mid-sip by another glass of fine Felemetian liqueur. The Blue Man pivoted, glowering ineffectually in the direction from whence the goblet had come. He had nothing in his hands. Nothing to throw in retaliation. So he plucked a small white dog out of his neighbor's jewel-encrusted purse, and flung the hapless creature toward his faceless assailant - all within a matter of moments too quick for one's superego to process. The reptile brain, ever quicker than the conscience of the masses, seized the purse's owner suddenly - she sensed the movement behind her, observed dumbly the emptiness of her purse, and - possessed by the growing pulse of violence - smashed the blue connoisseur across his glittering pate with her twinkly stone-heavy bag. Clusters spilled out all over the train floor.
+
+Wyntres leapt to catch the dog as it sailed through the air. Rusalka gathered her many skirts and ducked behind a table.
 
 
 -------
 
+Chassy, witnessing all of the above culminate with one of Beacon's many redheads fumbling an otherwise admirably gallant rescue attempt of the canid projectile, decided she'd seen enough, if not too much.
+
+With a twinge of guilt for the innocent abandoned (in this case, the dog alone), she pushed Razor into the whirling portal of rushing wind. The day was already won for the hooligan bourgeois; who was she to meddle in their mad affairs.  She released Razor and slammed the door shut behind them. 
+
+The wind that whipped sharply around her ears was a quieter, more welcome sound than the cacophony she'd caged behind them, and she sagged against the bat's supporting weight with a sigh for a breather. Respite for both of them, including the impending lecture due to for the Sentinel's misconduct.
+
+-------
+
+"Well you certainly diffused _that_ situation, Bossman!" the bat proclaims over the rush of the air around them in the exposed walkway between railcars, a lot of the usual playful tone lost in the doing but all there on his face. Surprise flashes across his face for an instant when she slumps into him, in the next moment he has both arms around her and a softer grin. His hands glide up and down over her back and flank in an affectionate caress - while surreptitiously depositing into her pockets the numerous and passingly identical sundial watches he'd collected for his act during his earlier fumble through the crowd of nobles.
+
+"In my defense, it wasn't my idea to get up there!"
+
+-------
+
+And though the woman had pockets aplenty, patience she did not. The moment of opportunity passed, undoubtedly hastened by the bat's preemptive defense and roaming fingers. She straightened and firmly peeled his hand away to hold it- and the stolen item- aloft.
+
+"I should have brought my brother instead," she complained.
+
+Releasing him, she snatched the watch and threw it into the wind. "Destruction of evidence," she griped again, matter-of-fact, "Please stop implicating me in your, ah, pathological crime sprees." A humorous sentiment, given the number of exhibits lining her pocketry.
+
+Arms folding across her narrow torso, she mustered a glare in her inspection of Razor's unauthorized attire. "Where's your uniform."
 
 
 -------
 
+Meanwhile, back inside the train car, the revelrous man with the facial scar was carrying on, though as the crowd descended into a decidedly undignified state of anarchy that revelry took on a different flavor. At some point in the chaos he had rolled up his sleeves, and busied himself planting his fists roundabout the solar plexi of those unfortunate fops to be rioting within arms reach of him.
 
-
--------
-
-
+Yet unlike the disaffected debutantes and growling gentlemen the leathery man plowed his way through the crowd with a smile on his face and a song in his laughter. Had he thought something like this would unfold? Hoped? Dared to dream deep down in his heart of hearts, perchance? As his knuckles connected with the blue visage of one unfortunate Whimsord Froward it hardly seemed to matter.
 
 -------
 
+"You _could_ have. We both know I'd have crashed the party anyway." Razor said, not the slightest bit sheepish, and certainly not repentant, for being caught red-handed, nor even batting an eye when she cast his ill-gotten gains into the passing wilderness, "I was going to ask you to _return_ those for me, at some point, but now we're _two_ short."
 
+Meanwhile, the gale force flowing over them was making an utter mess of his hair - not just the thick mop atop his head that he called a hairdo but the entirety of his exposed coat. His longer bangs had been rattled apart and were now flapping in the breeze, mostly assaulting her face with their multitudinous scratchy tips, while his face had taken on a resemblance to that of a particularly fluffy breed of canine.
 
--------
+On the inquiry regarding his uniform, he starts his answer with his usual carefree cheeriness and grows progressively more pensive as he dwells on the matter, "Back at the railyard! ...Behind a toolshed, last I saw of it. Prrr_obably_ being used by a bum to wipe his hobo at this point."
 
-
-
--------
-
-
-
--------
--------
-
-
+He throws up a shrug with a what-can-ya-do grin.
 
 -------
 
+Reflexively, Chassy pushed the few wild strands of red from her own face; the act almost sated the itch in her psyche to try to correct the tangle in front of her. She considered the stream of words that accompanied the mop-in-motion with an unsurprised, flat expression.
 
-
--------
-
-
+ "I am not helping you get a new issue," she said at last, dismissively entering the car leading forward. There was no going backwards - not into that Beacon bourgeois hell- not for anything.
 
 -------
 
+After all, it wasn't like they were here to uphold order or anything like that.
 
+"So what I'm hearing is that I can wear this instead from now on." Razor said as he followed her in, taking over pushing and holding open the door as soon as he could reach past her to do so. Inside out of the wind, he made a small effort to smooth out and straighten his hair back into a semblance of his usual style, and while he was still in the doing added, "Actually I have a hot tip I need to follow up on, want to meet up in the diner in, I don't know, two hours?"
 
--------
-
-
-
--------
-
-
+A beat, and then he rolled up his sleeve to reveal still another wrist-mounted solar timepiece, "...I mean, give or take. Can't promise I won't be late, damn watch is broken."
 
 -------
 
+While the casual wit may have coaxed a twitch of a smile from the severe young woman at any other time (as it had done so many other times), Chassy spared the bat nary a glance as she walked through the door and past, stiff and brooding. 
 
+History was being made, and the damned bat still couldn't keep his pants on. Figuratively (she thought of the Luyus heiress that Razor had toasted with a souring look) and literally.
 
--------
--------
-
-
-
--------
-
-
+"Do as you like," she said, clipped and cold, "I can't use a Sentinel out of uniform."
 
 -------
 
