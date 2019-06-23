@@ -663,11 +663,27 @@ History was being made, and the damned bat still couldn't keep his pants on. Fig
 
 -------
 
+Then he was in front of her, hands on her shoulders, squeezing without gripping, his mouth stretched into a grin so large it was forcing his eyes shut.
 
+"That's the spirit!" Razor declared, followed by an exuberant click of tongue on fang, a few over-enthusiastic pats, then leaning in to add in a quieter, but no less chipper voice, "By the way, that lady you wanted me to avoid at all costs? I'm trying to get everyone to start calling her _The Bee Lady_, so if you could use _every_ excuse you can think of to work her into conversation calling her _The Bee Lady_ I would owe you at _least_ five favours."
+
+And so, without waiting for her to respond, he spun on his heels and began to strut towards the door on the far end of the car, a hand high over his head waving to her without looking back, "See ya soon, Bossman!"
 
 -------
 
+"I-" 
 
+When met with the wind outside, the woman's voice stood no chance. She closed her mouth and frowned at the door as he hauled it shut.
+
+"...was there, Razor." She completed the sentence seconds later, lamely late and unheard in the sealed car. Her cheeks belatedly tried their hand at Beacon-red, and they succeeded brilliantly.
+
+It hadn't been the man's self-motivated nearness, his touch, or even the heat of his breath on wind-chill as he needlessly explained (in close proximity) the Luyus woman's weird nickname. 
+
+It had been the other Sentinel's bouyantly gleeful expression for the duration that triggered her delayed self-consciousness-- now full force and burning.
+
+"Damnit, Razor."
+
+But _she_ was still in uniform, and therefore _she_ still had a job to do. The Bee Lady's party car excluded. _...ah, damn._
 
 -------
 
